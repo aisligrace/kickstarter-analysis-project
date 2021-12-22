@@ -14,9 +14,10 @@ Theatre saw the most successful campaigns but also the most failed
 ---
 Within theatre, plays were also both the most successful and had the most failed campaigns
 ---
-![Picture1](/Users/alexandramcfarland/Desktop/GW Classwork/Picture1.png)
+![Picture1](https://user-images.githubusercontent.com/96492230/147140623-b40c703c-e5e8-4b2e-85c3-ee884630f96f.png)
 ---
 Recommendations:
 ---
 We recommend Louise opens a play with a goal of of $5000 in either in May for the best chance of a successful campaign
 ---
+
