@@ -14,7 +14,7 @@ Theatre saw the most successful campaigns but also the most failed
 ---
 Within theatre, plays were also both the most successful and had the most failed campaigns
 ---
-![Parent Category Outcomes](/Users/alexandramcfarland/Desktop/GW Classwork/Picture1.png).
+![Picture1](/Users/alexandramcfarland/Desktop/GW Classwork/Picture1.png)
 ---
 Recommendations:
 ---
